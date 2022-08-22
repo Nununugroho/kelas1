@@ -1,1 +1,2 @@
-# kelas1
+Nama   : Nunu Nugroho
+Alamat.:désa cidahu
